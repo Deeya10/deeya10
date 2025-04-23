@@ -1,7 +1,9 @@
 ## Hi there 👋
 
 # 💫 About Me:
-AI & Applications <br>☕ 100% fuelled by black coffee
+Ex-tester who asked too many questions.
+<br>AI made me curious, so I ended up in AI.
+<br>☕ 100% fuelled by black coffee
 
 
 ## 🌐 Socials:
